@@ -27,3 +27,8 @@ Central limiting theorem vs thermal fluctuation
 Philosophical Implication:
 
 We are internally biased but we can see the bigger picture—smooth talk.
+
+
+[Neil Turok](https://perimeterinstitute.ca/people/neil-turok)
+[Neil Turok - Wikipedia](https://en.wikipedia.org/wiki/Neil_Turok)
+- Carlo Fidani Roger Penrose Distinguished Visiting Research Chair in Theoretical Physics
